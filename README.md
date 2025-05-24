@@ -1,4 +1,4 @@
-https://avatars.githubusercontent.com/u/197430982?s=400&u=13051f7e6c456a235eddbb721b560ea41b130e41&v=4
+
 - 👋 Hi, I’m @crownytrex2
 - 👀 I’m interested in men<3
 - Hey pookie<3
