@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @crownytrex2
 - 👀 I’m interested in men<3
+- Hey pookie<3
 - 🌱 I’m currently learning Java and Javascript
 - 💞️ I’m looking to collaborate on game servers
 - 📫 How to reach me discord @crownytrex
