@@ -3,7 +3,7 @@
 - 👀 I’m interested in ppl
 - Hey pookie<3
 - 🌱 I’m currently learning Java and Javascript
-- 💞️ I’m looking to find love (Pansexual)
+- 💞️ I’m looking to find coders 
 - 📫 How to reach me discord @crownytrex
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: satanic
