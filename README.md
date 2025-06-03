@@ -6,7 +6,7 @@
 - 💞️ I’m looking to find coders 
 - 📫 How to reach me discord @crownytrex
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: satanic
+- ⚡ Fun fact: HAHAHA
 - ❤ ily
 - 🧑‍💻 God with HTML/CSS/JS
  <!---
