@@ -1,6 +1,6 @@
 
 - 👋 Hi, I’m @crownytrex2
-- 👀 I’m interested in men<3
+- 👀 I’m interested in ppl
 - Hey pookie<3
 - 🌱 I’m currently learning Java and Javascript
 - 💞️ I’m looking to find love (Pansexual)
